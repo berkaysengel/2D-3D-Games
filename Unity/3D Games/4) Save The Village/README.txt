@@ -1,0 +1,1 @@
+You can access this game via the following link: https://berkaysengel.itch.io/save-the-village

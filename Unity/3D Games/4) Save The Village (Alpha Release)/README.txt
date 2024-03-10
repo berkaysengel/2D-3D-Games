@@ -1,1 +1,0 @@
-The game will be available very soon.
